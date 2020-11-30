@@ -6,7 +6,5 @@
 #### Music application webpage
 
 ![image](https://drive.google.com/uc?export=view&id=1pScKbaBQIb_mCaSG-hWqpt1l2r5DVipL)
-<br>
 ![image](https://drive.google.com/uc?export=view&id=1XS3zbhxFDjBgv0UHA-UVcDOYOKmvIxKs)
-<br>
 ![image](https://drive.google.com/uc?export=view&id=1g70COtBYYPZGJuKbWA0E2ACzPETeaWgh)
